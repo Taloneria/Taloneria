@@ -1,0 +1,14 @@
+- 👋 Hi, I’m Luis Carlos but everybody calls me Talo 🧔‍.
+  -   👨‍💼Industrial engeieer.
+  -   👨‍🔧industrial mechanic. 
+- 🌱 I’m currently learning Python and Data Analysis.
+- 👀 I’m interested in 
+    - Energy Industry. Stop the climate change is **possible**
+    - Finance. This. My heart is here.
+    - Manufacturing Industries. I'll never stop to wonder how it's made.
+- My Hobbies
+  -   🚲 Bike
+  -   📈 Investments
+  -   ⛰️ Trekking 
+  -   🧠 Learning
+- 📫 look up for me as @Taloneria
